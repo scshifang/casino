@@ -1,4 +1,4 @@
-# casino
+# Fun222 – Trang Chủ Chính Thức Fun222.com
 Fun222 - Nhà cái cá cược hàng đầu, nơi hội tụ đa dạng trò chơi giải trí hấp dẫn, tỷ lệ cược cạnh tranh và dịch vụ chăm sóc khách hàng tận tâm 24/7.
 Thông tin liên hệ: 
 Địa chỉ: 121 Cộng Hòa, Phường 12, Tân Bình, Hồ Chí Minh, Việt Nam
